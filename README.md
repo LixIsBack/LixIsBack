@@ -1,4 +1,4 @@
-- Yo, that one there was a violation, personally I wouldn't have it
+- Yo, that one there was a violation, personally I wouldn't have it\
   And if you do, just have it in a GC, press X, you faggot
   That one there was a violation, personally I wouldn't have it
   And if you do, just have it in a GC, press X, you faggot
